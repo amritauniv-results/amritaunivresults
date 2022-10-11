@@ -1,3 +1,0 @@
-# amritaunivresults
-
-Demo
